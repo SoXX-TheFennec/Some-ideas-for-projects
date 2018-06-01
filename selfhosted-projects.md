@@ -34,7 +34,7 @@
 
 ## JUST MONICA!
 
-- [just monica](https://www.monicahq.com)![just monica](https://www.monicahq.com)
+- [just monica](https://www.monicahq.com)
 
 ## Presentation
 
